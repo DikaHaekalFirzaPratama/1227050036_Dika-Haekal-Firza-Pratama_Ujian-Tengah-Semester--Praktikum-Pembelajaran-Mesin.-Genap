@@ -1,0 +1,1 @@
+# 1227050036_Dika-Haekal-Firza-Pratama_Ujian-Tengah-Semester--Praktikum-Pembelajaran-Mesin.-Genap
